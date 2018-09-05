@@ -1,1 +1,1 @@
-![lovely image of bobby shmurda] (https://djbooth.net/.image/t_share/MTUzNDg2MDMzMzU1MjIwMTY2/bobby-shmurda-murder-chargesjpg.jpg)
+![let us embrace in bobby shmurda](https://static.vibe.com/files/2017/02/bobby-shumrda-pleads-guilty-to-promoting-prison-contraband-1486137821-640x469.png)
