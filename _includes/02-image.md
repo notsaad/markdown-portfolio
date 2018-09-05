@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![lovely image of bobby shmurda] (https://djbooth.net/.image/t_share/MTUzNDg2MDMzMzU1MjIwMTY2/bobby-shmurda-murder-chargesjpg.jpg)
